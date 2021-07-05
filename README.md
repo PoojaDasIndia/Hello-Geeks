@@ -23,5 +23,5 @@ I have Positive Attitude, Confident, Convince, Fast Learner, Strong team spirit 
 “I am an infinite Learner. Every Day I start with a new topic to learn and practices, which I will do till my  end loop.” 
 
 POOJA DAS
-poojadigitechindia@gmail.com
+PoojaDas93@outlook.com
 
